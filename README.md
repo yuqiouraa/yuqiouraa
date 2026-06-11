@@ -15,4 +15,3 @@ im an ENFP-T!
 ---
 [![](https://komarev.com/ghpvc/?username=yuqiouraa&icon=7&color=3)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
