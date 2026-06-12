@@ -2,7 +2,7 @@
 hi! im sometimes active in ponytown, if you do find me, you can c+h+k me freely or interact with me however you want, but i only speak fil/eng .
 im an ENFP-T!
 
-[me atabook (https://yuqioura.atabook.org/)]
+[ me atabook (https://yuqioura.atabook.org/) ]
 
 
 
